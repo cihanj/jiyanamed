@@ -1,0 +1,2 @@
+# jiyanamed
+gizli hacr
